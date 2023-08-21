@@ -1,1 +1,1 @@
-I am starting to learn how to learn
+Learning is becoming more interesting
